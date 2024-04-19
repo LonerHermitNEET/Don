@@ -1,9 +1,19 @@
+Title: Don - Monster Kingdom Building Fantasy LitRPG Journey Novel
+
+# Book description:
+
+This story follows the powerful troll Don as she establishes a new settlement called Dontown and builds up a community of goblins, warriors, and soldiers. As a level 15 warlock, Don faces various challenges in managing resources, fending off attacks, and leveling up her community members, all while navigating complex relationships with human adventurers, fishmen public servants, and other factions. The story blends fantasy, RPG mechanics, and kingdom-building as Don works to expand her influence and create a safe haven for her people, while also uncovering darker forces that aim to undermine her efforts.
+
+**Skip the prologues and head over to chapter 1 if you want to get right into the main story. The prologue just delves more deeply into Don's perspective, so it is very fragmented and non-linear, characterized by non-standard use of words and unusual phrasing, and highly poetic and abstract.**
+2100 words average; 2 PM CET
+
+
 # Prologue (1): Boat Ride and Meeting Sam
 
 
 A note from roflerdolfer
 
-
+**Skip the prologues and head over to chapter 1 if you want to get right into the main story. The prologue just delves more deeply into Don's perspective, so it is very fragmented and non-linear, characterized by non-standard use of words and unusual phrasing, and highly poetic and abstract.**
 
 This prologue leans toward a more fragmented, non-linear, and ambiguous style. It's meant to provide vignettes and out-of-context scenes that will be explained in the main story. Though, prologue (1) to (3) is generally more linear in terms of writing style. The entire prologue may be skipped, since it will mostly be extra content rather than essential context. As for whether this prologue occurs before or after the main story, considering that the main cast is here, it occurs before the main story.
 
