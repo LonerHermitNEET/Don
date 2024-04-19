@@ -5,6 +5,7 @@ Title: Don - Monster Kingdom Building Fantasy LitRPG Journey Novel
 This story follows the powerful troll Don as she establishes a new settlement called Dontown and builds up a community of goblins, warriors, and soldiers. As a level 15 warlock, Don faces various challenges in managing resources, fending off attacks, and leveling up her community members, all while navigating complex relationships with human adventurers, fishmen public servants, and other factions. The story blends fantasy, RPG mechanics, and kingdom-building as Don works to expand her influence and create a safe haven for her people, while also uncovering darker forces that aim to undermine her efforts.
 
 **Skip the prologues and head over to chapter 1 if you want to get right into the main story. The prologue just delves more deeply into Don's perspective, so it is very fragmented and non-linear, characterized by non-standard use of words and unusual phrasing, and highly poetic and abstract.**
+
 2100 words average; 2 PM CET
 
 
