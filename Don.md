@@ -1514,7 +1514,7 @@ The goblins glanced at her before returning to work, passing by a board that rea
 
 Even now, it was hard to pretend that everything would go perfectly well.
 
-[One of your goblins had gotten sick! Go to them immediately!]
+**[One of your goblins had gotten sick! Go to them immediately!]**
 
 Don ran and hired a healer from a nearby district to save the goblin.
 
@@ -1529,3 +1529,6 @@ In the end, she had to let go of this issue this one time.
 If things went awry, it would become even worse than the situation now.
 
 She had to pay attention, or else.
+
+# Chapter 3
+
